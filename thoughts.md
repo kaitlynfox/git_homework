@@ -3,3 +3,4 @@
 3. Breaking down problems into psuedocode
 4. Utilizing Pom Breaks into my daily studying
 5. Shoutout to Renee Swick-Ziller for being very friendly and positive!
+6. tacos, gauc, chips
